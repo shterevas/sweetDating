@@ -1,2 +1,2 @@
 # sweetDating
-A website to ask your Lover out
+A website to invite your Lover for a date 🥰
