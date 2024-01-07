@@ -1,4 +1,4 @@
 # wouldyouliketogooutwithme
-[https://yourLoverThings.com/](https://yourLoverThings.com/)
+[https://yourloverthings.com/](https://yourloverthings.com/)
 
 A website to invite your Lover for a date 🥰
